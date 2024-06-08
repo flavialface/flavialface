@@ -1,4 +1,12 @@
-## Hi there 👋
+## Olá seja bem vindo
+
+1- Estou estundando Alura 🍫
+
+2- Sou Aluna do Ensino Médio 🍎
+
+3- Aluna do Professor Caio ❤️
+
+4- Aprendendo como funciona 🤭
 
 <!--
 **flavialface/flavialface** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
