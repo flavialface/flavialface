@@ -4,7 +4,7 @@
 
 2- Sou Aluna do Ensino Médio 🍎
 
-3- Aluna do Professor Caio ❤️
+3- Aluna do Professor Caio 
 
 4- Aprendendo como funciona 🤭
 
